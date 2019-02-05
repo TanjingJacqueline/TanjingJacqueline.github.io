@@ -364,6 +364,8 @@
     [新闻](http://ent.sina.com.cn/v/p/2006-04-06/17191041054.html)
 - 4月12日录制，《星光大道》五一特别节目
 - 4月20日左右，《光荣之歌》以社会主义荣辱观为主题的文艺晚会，演唱《八荣八耻歌》
+
+    [MV搜狐](https://tv.sohu.com/v/dXMvNDkxNjMxMzcvMTM2OTg1Mjguc2h0bWw=.html) | [MV土豆](http://video.tudou.com/v/XMjA0MjM4NjU5Mg==.html?f=43688403) | [酷我单曲](http://bd.kuwo.cn/yinyue/7130589) | [QQ单曲](https://y.qq.com/n/yqq/song/004Z9Wwb3Q543x.html)
 - 4月27日，参加第二届中国国际动漫节开幕式晚会，谭晶演唱《蔓延》
 - 4月28日，《黄鹤楼》MTV首发式暨《投资时报·红金龙周刊》创刊新闻发布会隆重举行
 - 4月30日，央视“青年歌手大赛”，历届“青歌赛”获得者率先走上星光大道
