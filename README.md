@@ -367,9 +367,17 @@
 
     [搜狐MV](https://tv.sohu.com/v/dXMvNDkxNjMxMzcvMTM2OTg1Mjguc2h0bWw=.html) | [土豆MV](http://video.tudou.com/v/XMjA0MjM4NjU5Mg==.html?f=43688403) | [酷我单曲](http://bd.kuwo.cn/yinyue/7130589) | [QQ单曲](https://y.qq.com/n/yqq/song/004Z9Wwb3Q543x.html)
 - 4月27日，参加第二届中国国际动漫节开幕式晚会，谭晶演唱《蔓延》
+
+    [新闻](http://news.eastday.com/eastday/news/xwzxzt/cjsjz/node5309/userobject1ai1991455.html) | [QQ单曲](https://y.qq.com/n/yqq/song/003JAbG72m9lJT.html) | [酷我单曲](http://bd.kuwo.cn/yinyue/138045)
 - 4月28日，《黄鹤楼》MTV首发式暨《投资时报·红金龙周刊》创刊新闻发布会隆重举行
+
+    [新闻](http://news.sina.com.cn/s/2006-04-29/08558819203s.shtml) | [MV](https://www.bilibili.com/video/av21145735/?p=70) | [QQ单曲](https://y.qq.com/n/yqq/song/0019xtsP0XhCjv.html) | [酷我单曲](http://bd.kuwo.cn/yinyue/7046420)
 - 4月30日，央视“青年歌手大赛”，历届“青歌赛”获得者率先走上星光大道
+
+    [新闻](http://sports.sina.com.cn/s/2006-05-01/0639847053s.shtml)
 - 5月1日，参加中国文联“百花芬芳——明荣辱树新风促和谐主题演出周”活动，演唱《和谐大家园》
+
+    [新闻](http://www.gov.cn/jrzg/2006-04/29/content_271347.htm) | [酷我单曲](http://bd.kuwo.cn/yinyue/3188428) | [QQ单曲](https://y.qq.com/n/yqq/song/001Av8yA0ZvQiF.html)
 - 5月16日，参加2005年度中国青年志愿服务金奖颁奖大会
 - 5月21日，现场捐赠20万元设立“谭晶青少年健康援助基金”，并被聘为“江西省青少年健康基金爱心大使”
 - 5月29日，《和希望有约 贺东久作品演唱会》
