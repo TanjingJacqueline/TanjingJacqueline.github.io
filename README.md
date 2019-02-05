@@ -346,6 +346,8 @@
 
     [B站MV](https://www.bilibili.com/video/av21145735/?p=56) | [QQ单曲](https://y.qq.com/n/yqq/song/002ClVVB2h95Zv.html) | [酷我单曲](http://bd.kuwo.cn/yinyue/7051467) | [歌曲相关新闻](http://www.chinanews.com/df/news/2010/06-12/2341088.shtml)
 - 1月29日-02月6日，《军营文化》栏目《军营明星大拜年》特别节目
+
+    [新闻](http://ent.sina.com.cn/x/2006-01-24/1206970213.html)
 - 1月29日-02月6日，参加2006年过年七天乐，谭晶和毕福剑跳起了斗牛舞
 - 2月1日，“百花迎春 中国文学艺术界2006年春节大联欢”，合唱《凝聚每份爱》
 - 2月8日，随总政歌舞团赴欧洲慰问演出
